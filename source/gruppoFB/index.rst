@@ -1,20 +1,23 @@
-=============================================
-REGOLAMENTO DEI GRUPPI FACEBOOK DI GIOIALAB
-=============================================
+=====================================================
+REGOLE DI COMPORTAMENTO PER LA PARTECIPAZIONE CIVICA
+=====================================================
 
 Introduzione
 =============
-Benvenuti nel gruppo Facebook gestito da GioiaLab, nasce con l`intenzione di essere uno strumento di partecipazione attiva della comunità di Gioia del Colle.
+I gruppi Facebook gestiti da GioiaLab, nascono con l`intenzione di essere uno strumento di partecipazione attiva della comunità di Gioia del Colle.
 
-Non sono graditi all’interno del gruppo Facebook messaggi riportanti polemiche politiche o religiose.
+Non sono graditi all’interno dei gruppi Facebook messaggi riportanti polemiche politiche o religiose.
 
-Nel gruppo Facebook vige la massima libertà di pensiero nei limiti dell’educazione e della civile dialettica.
+Nei gruppi Facebook vige la massima libertà di pensiero nei limiti dell’educazione e della civile dialettica.
 
 La moderazione è a cura degli amministratori del gruppo.
 
 Gestore della Community
 ========================
 E' possibile chiedere informazioni al Gestore della Community GioiaLAB `Giuseppe Zileni`_
+
+REGOLAMENTO
+=============================================
 
 ---------------------------------------------------------------------------------------
 Art. 1 - Accettazione del regolamento, iscrizione ed accesso al gruppo Facebook
