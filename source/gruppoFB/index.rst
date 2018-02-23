@@ -5,10 +5,7 @@ REGOLE DI COMPORTAMENTO PER LA PARTECIPAZIONE CIVICA
 Introduzione
 =============
 I gruppi Facebook gestiti da GioiaLab, nascono con l`intenzione di essere uno strumento di partecipazione attiva della comunità di Gioia del Colle.
-
-Non sono graditi all’interno dei gruppi Facebook messaggi riportanti polemiche politiche o religiose.
-
-Nei gruppi Facebook vige la massima libertà di pensiero nei limiti dell’educazione e della civile dialettica.
+In questi gruppi vige la massima libertà di pensiero nei limiti dell’educazione e della civile dialettica.
 
 La moderazione è a cura degli amministratori del gruppo.
 
